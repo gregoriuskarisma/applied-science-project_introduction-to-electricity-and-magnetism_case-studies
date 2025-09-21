@@ -1,1 +1,1 @@
-# applied-science-project_introduction-to-electricity-and-magnetism_case-studies
+# Applied Science Project - Fundamentals of Materials Science: Case Studies
